@@ -213,3 +213,7 @@ During that KubeCon, she guided me, whenever we had a session in common, she wou
 2 weeks ago, I was at KubeCon and she was not there, but our close friends were there. We made a picture and they send it to her. The next day they gave me her message: "I miss you very much". I replied I missed her too, a lot... Tu vas me manquer énormément mon amie ❤️
 
 May you rest in peace, your legacy definitively lives on 🦄🌈
+
+## James Sturtevant
+
+I feel lucky to have gotten to know Carolyn over the last few months.  She was so welcoming and brought a wonderful energy to our team.  She always provided an optimistic outlook and spread her joy to the rest of us.  She will be missed dearly.
